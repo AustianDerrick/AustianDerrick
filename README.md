@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AustianDerrick
-- 👀 I’m interested in web desigm
-- 📫 How to reach me austianderrick@gmil.com
+- 👀 I’m interested in web design
+- 📫 How to reach me austianderrick006@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: Jack of all trades.
 
